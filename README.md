@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **guptaaryan1323@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QKfijdKMB0o85XNKCnfyDUoXDTVxsVIe/view](https://drive.google.com/file/d/1QKfijdKMB0o85XNKCnfyDUoXDTVxsVIe/view)
+- 📄 Know about my experiences [My Resume](https://www.linkedin.com/in/aryangupta1323/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
